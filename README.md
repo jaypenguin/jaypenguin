@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jaypenguin
 - 👀 I’m interested in your mom
-- 🌱 I’m currently learning how to get some bi--
+- 🌱 I’m currently learning how to get some bi--hes
 - 💞️ I’m looking to collaborate on robotics
 - 📫 How to reach me yes
 
